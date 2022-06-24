@@ -1,1 +1,1 @@
-![iwakura](lain.jpg)
+![iwakura](​.jpg)
